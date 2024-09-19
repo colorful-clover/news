@@ -23,9 +23,10 @@
 ## 2024 年 7 月
 - [油罐车卸完煤制油不洗罐直接装运食用大豆油](https://www.zhihu.com/question/660963326)
 ## 2024 年 8 月
-- [山西男子控制多家火化场盗卖数千具尸体](https://www.zhihu.com/question/663778150)，[青大附院器官移植中心有医生卷入](https://www.zhihu.com/question/663778150) (讨论已经全部被删除)
+- [山西男子控制多家火化场盗卖数千具尸体](https://www.zhihu.com/question/663778150)，[青大附院器官移植中心有医生卷入](https://www.zhihu.com/question/663778150)  (讨论已被全部删除)
 - [青岛某生物公司暗藏北方最大地下代孕实验室](https://www.zhihu.com/question/665407720)，[代孕者有未成年人](https://www.zhihu.com/question/666001729)
 - [蚁商为垄断达州神龙溶洞珍稀步甲在洞中大量投毒](https://www.zhihu.com/question/664306989)
+- [父亲带儿子在机动车道组团超速骑行，别倒儿子使其遭对向车辆碾压身亡](https://www.zhihu.com/question/664119260)
 ## 2024 年 9 月
 - [北京海洋馆白鲸长时间凄厉尖叫，此前已有一只白鲸被养死，北京海洋馆称这是愉悦的叫声](https://www.zhihu.com/question/666340522)
 - 人大通过延迟退休决议 （全网禁评）
